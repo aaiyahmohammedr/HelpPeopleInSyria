@@ -1,1 +1,1 @@
-# HelpPeopleInSyria
+# Help-Syria
